@@ -1,5 +1,5 @@
 # elena-olekh-essay
-# **Application letter for ADA Developers Academy**
+## **Application letter for ADA Developers Academy**
 
 My name is Elena Olekh and first of all I am a mother of two amazing girls. I and my family moved to the Seattle area almost two years ago from Israel, following my husband’s job opportunity. In Israel, I studied biotechnology engineering and since I completed my studies I worked in that field. First for a couple of years I worked in research and then as a regulatory affairs specialist at a pharmaceutical company. Wherever I worked I enjoyed my work, the companies and the people I worked with.
 

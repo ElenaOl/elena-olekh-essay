@@ -22,6 +22,5 @@ Only recently I have heard from a friend about ADA, whom I told about my rising 
 I have an amazing husband that will be able to help me while supporting and taking care of our family for this period when I will be turning my life into a new direction.
 I would greatly appreciate if you considered to include me in the program. 
 
-Sincerely,
-
+Sincerely,  
 Elena
